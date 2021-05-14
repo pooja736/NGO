@@ -1,0 +1,2 @@
+# NGO
+We exist for non-profits, social enterprises, community groups, activists,lorem politicians and individual citizens that are making. Lorem ipsum dolor sit amet consectetur adipisicing elit. Dolore minima atque obcaecati deleniti tempora, cumque molestiae consectetur provident temporibus natus iste accusamus totam voluptas quas suscipit blanditiis fuga quibusdam porro.  It is a long established fact that a reader will be distracted by the readable content of a page when looking at its layout.
